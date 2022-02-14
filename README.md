@@ -13,3 +13,5 @@ Terima kasih atas 1 semester ini kelas bapak sangat keren banget dan membantu sa
 
 oh yaa boleh liat video saya nihh:
 https://youtu.be/S50DjkPgevg
+
+Terima kasih
